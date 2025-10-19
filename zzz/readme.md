@@ -1,7 +1,7 @@
 # zzz.exe By P. ĐĂNG
-WARNING! This Malware Will Destroy Your PC!
-
->[!INFO]
+>WARNING! This Malware Will Destroy Your PC!
+>
+>
 >My YouTube Channel:
 >
 >https://www.youtube.com/channel/UCh5xBsYr8gQzTwcPEZP8nig
